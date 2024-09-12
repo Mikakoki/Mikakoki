@@ -1,1 +1,4 @@
-Hi Im mikakoki, my main interest is in physics and complex systems. I work on stochastic systems simulations and data ananlysis. 
+Hi
+Welcome to this pretty empty profile. As you can see there isnt much here for now, but wait a year. I have to projeccts going on!
+
+Have a good day.
